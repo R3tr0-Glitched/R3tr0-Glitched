@@ -36,7 +36,7 @@ Readme.md has loaded successfully
 
 ## 🌐 Connect with Me
 
-- 📮 **Discord:** r3tr0isback
+- 📮 **Discord:** 1tz_n0t_r3tr0
 
 ## 🥇 My Skills
 
